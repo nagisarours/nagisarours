@@ -7,7 +7,7 @@
 <br>
 multifandom!
 <br>
-i draw somtimes but i love int with ppl!!!
+i draw somtimes but i love rp'ing & talking with ppl!!!
 <br>
 feel free to c + h! don't be shy to whisper or int :D
 <br>
