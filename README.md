@@ -7,7 +7,7 @@
 <br>
 multifandom!
 <br>
-22 | mdni | esp/eng
+mdni | 22 | esp/eng
 <br>
 <br>
 i draw somtimes but i love rp'ing & talking with ppl!!!
