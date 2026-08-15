@@ -1,16 +1,21 @@
-## Hi there 👋
-
-<!--
-**nagisarours/nagisarours** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+• . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •
+<br>
+<br>
+ <img width="60%" src="https://i.imgur.com/fndJcvY.jpeg">
+<br>
+<br>
+multifandom!
+<br>
+i draw somtimes but i love int with ppl!!!
+<br>
+feel free to c + h! don't be shy to whisper or int :D
+<br>
+<a href="https://nagisarours.straw.page">Strawpage!</a>
+<br>
+<br>
+• . ݁₊  _____________๑♡⁠๑_____________  ₊ ݁. •
+<br>
+<br>
+<br> 
+</div>
