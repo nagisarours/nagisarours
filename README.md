@@ -5,6 +5,8 @@
  <img width="75%" src="https://i.imgur.com/fndJcvY.jpeg">
 <br>
 <br>
+22 | mdni tyy 
+<br>
 multifandom!
 <br>
 i draw somtimes but i love rp'ing & talking with ppl!!!
