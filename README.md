@@ -5,7 +5,7 @@
  <img width="75%" src="https://i.imgur.com/fndJcvY.jpeg">
 <br>
 <br>
-22 | mdni tyy 
+22 | mdni 
 <br>
 multifandom!
 <br>
