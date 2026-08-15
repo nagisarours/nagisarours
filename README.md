@@ -2,7 +2,7 @@
 • . ݁₊ ⊹ . ݁꒰ঌ·✦·໒꒱ ݁ . ⊹ ₊ ݁. •
 <br>
 <br>
- <img width="75%" src="https://i.imgur.com/fndJcvY.jpeg">
+<img width="75%" src="https://i.imgur.com/fndJcvY.jpeg">
 <br>
 <br>
 multifandom!
